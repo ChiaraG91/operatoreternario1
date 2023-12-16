@@ -1,0 +1,1 @@
+# operatoreternario1
